@@ -11,3 +11,7 @@ die Organspende und natürlich die Geburt eine Rolle. Dabei schlüpfen die Prota
 * hält Amerikaner für Labertaschen
 
 > Es war die Lachsschaumspeise!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/a/ac/Der_Tod_%E2%80%93_MPS_Hohenweststedt_01.jpg"/>
+
+Bild unter CC-Lizenz Autor: Frank Schwichtenberg
