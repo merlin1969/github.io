@@ -9,3 +9,5 @@ die Organspende und natürlich die Geburt eine Rolle. Dabei schlüpfen die Prota
 * weist auf die vergiftete Lachsschaumspeise hin
 * hat ein schwarzes Gewand an
 * hält Amerikaner für Labertaschen
+
+> Es war die Lachsschaumspeise!
